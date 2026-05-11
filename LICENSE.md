@@ -1,4 +1,4 @@
-# 
+# Adobe Audition for macOS custom Filter: multi-cam-editing & auto-tune offers the most advanced Adobe Audition for macOS filter, with multi-cam-editing and auto-tune. Ideal for
 
 
 
